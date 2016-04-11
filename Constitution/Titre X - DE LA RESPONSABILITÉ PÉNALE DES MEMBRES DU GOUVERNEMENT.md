@@ -1,0 +1,26 @@
+#Titre X - DE LA RESPONSABILITÉ PÉNALE DES MEMBRES DU GOUVERNEMENT
+
+##ARTICLE 68-1.
+
+Les membres du Gouvernement sont pénalement responsables des actes accomplis dans l'exercice de leurs fonctions et qualifiés crimes ou délits au moment où ils ont été commis. 
+
+Ils sont jugés par la Cour de justice de la République. 
+
+La Cour de justice de la République est liée par la définition des crimes et délits ainsi que par la détermination des peines telles qu'elles résultent de la loi.
+
+##ARTICLE 68-2.
+
+La Cour de justice de la République comprend quinze juges : douze parlementaires élus, en leur sein et en nombre égal, par l'Assemblée nationale et par le Sénat après chaque renouvellement général ou partiel de ces assemblées et trois magistrats du siège à la Cour de cassation, dont l'un préside la Cour de justice de la République. 
+
+Toute personne qui se prétend lésée par un crime ou un délit commis par un membre du Gouvernement dans l'exercice de ses fonctions peut porter plainte auprès d'une commission des requêtes. 
+
+Cette commission ordonne soit le classement de la procédure, soit sa transmission au procureur général près la Cour de cassation aux fins de saisine de la Cour de justice de la République. 
+
+Le procureur général près la Cour de cassation peut aussi saisir d'office la Cour de justice de la République sur avis conforme de la commission des requêtes. 
+
+Une loi organique détermine les conditions d'application du présent article.
+
+##ARTICLE 68-3.
+
+Les dispositions du présent titre sont applicables aux faits commis avant son entrée en vigueur. 
+
